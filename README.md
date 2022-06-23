@@ -1,3 +1,5 @@
 -SOBRE MIM 😙
 - Olá meu nome é Eloisa👋🏻
 - 👁️👄👁️💅🏻
+- @eloisa_cionek13 📲
+- ツ㋡
