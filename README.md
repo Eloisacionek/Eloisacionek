@@ -1,2 +1,3 @@
-SOBRE MIM 
-- Olá meu nome é Eloisa 
+SOBRE MIM 😙
+- Olá meu nome é Eloisa👋🏻
+-👁️👄👁️💅🏻
